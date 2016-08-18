@@ -5,4 +5,6 @@ So, after the start there came silence, pondering and a strange desire to do mor
 
 After the first silence a new comment was heard.
 
+Do I see a branch before me?
+
 
